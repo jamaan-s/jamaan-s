@@ -12,3 +12,6 @@ Hi, im jamaan. am a data analyst who love working with data to summarize/explori
 
 ## Contact
 Email: *'jamaan.saeed@gmail.com'*
+Email: *'jamaan198@hotmail.com'*
+Linkedin: www.linkedin.com/in/jamaan-saeed
+
